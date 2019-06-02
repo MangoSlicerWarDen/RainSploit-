@@ -1,2 +1,7 @@
 # RainSploit-
 The All new mod programm
+
+UPDATE SYSTEM WAS SCRATCHED! IT IS ON WORK AGAIN
+
+SCRIPT HUB COMING SOON
+
